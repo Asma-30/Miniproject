@@ -1,3 +1,3 @@
 # Miniproject
 Major projedct LY <br>
-Author - Asma Lakhani
+Author - Asma Lakhani(bitch)
